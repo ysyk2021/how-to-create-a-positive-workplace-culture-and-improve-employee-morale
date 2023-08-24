@@ -1,5 +1,3 @@
-Leading with Positivity and Enthusiasm
-===========================================================================================================
 
 Leadership plays a critical role in building and maintaining a positive workplace culture. In this chapter, we will discuss the importance of leading with positivity and enthusiasm, how it can benefit your organization, and strategies for achieving it.
 

@@ -1,5 +1,3 @@
-The Elements that Make up a Positive Workplace Culture
-========================================================================================================
 
 Defining a positive workplace culture is essential for creating a work environment that promotes employee well-being and business success. In this chapter, we will discuss the elements that make up a positive workplace culture.
 

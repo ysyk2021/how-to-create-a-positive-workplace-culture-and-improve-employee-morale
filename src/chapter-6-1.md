@@ -1,5 +1,3 @@
-The Impact of Workplace Stress and Burnout on Employee Morale
-=================================================================================================================
 
 Workplace stress and burnout can have a significant impact on employee morale. In this chapter, we will discuss the effects of workplace stress and burnout, common causes, and strategies for addressing them.
 

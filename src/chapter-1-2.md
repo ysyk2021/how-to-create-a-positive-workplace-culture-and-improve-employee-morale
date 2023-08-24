@@ -1,5 +1,3 @@
-Benefits of Improving Employee Morale through a Positive Workplace Culture
-===================================================================================================
 
 Improving employee morale through a positive workplace culture can have significant benefits for both employees and employers. In this chapter, we will discuss some of the key benefits of improving employee morale through a positive workplace culture.
 

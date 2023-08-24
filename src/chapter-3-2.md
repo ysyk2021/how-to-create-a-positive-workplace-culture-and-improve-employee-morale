@@ -1,5 +1,3 @@
-Identifying Strengths and Weaknesses of Your Workplace Culture
-===========================================================================================================
 
 Assessing your workplace culture is critical for promoting a positive workplace culture and improving employee morale. In this chapter, we will discuss strategies for identifying the strengths and weaknesses of your workplace culture.
 

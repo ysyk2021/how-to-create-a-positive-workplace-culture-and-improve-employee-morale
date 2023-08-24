@@ -1,5 +1,3 @@
-Strategies for Building a Positive Workplace Culture
-======================================================================================================
 
 Building a positive workplace culture is critical for promoting employee well-being and driving organizational success. In this chapter, we will discuss strategies for building a positive workplace culture, including:
 

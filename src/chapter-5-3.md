@@ -1,5 +1,3 @@
-Using Active Listening and Feedback Techniques
-===================================================================================================
 
 Improving communication in the workplace is critical for promoting a positive workplace culture and improving employee morale. In this chapter, we will discuss the importance of effective communication, common communication challenges, and strategies for using active listening and feedback techniques.
 

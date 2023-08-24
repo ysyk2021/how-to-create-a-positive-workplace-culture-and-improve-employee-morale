@@ -1,5 +1,3 @@
-Strategies for Using Positive Workplace Culture Skills to Become a Better Leader
-=====================================================================================================================================================
 
 Leadership is critical for building and maintaining a positive workplace culture. In this chapter, we will discuss strategies for using positive workplace culture skills to become a better leader, including:
 

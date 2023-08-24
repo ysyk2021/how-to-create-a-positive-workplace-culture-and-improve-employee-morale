@@ -1,5 +1,3 @@
-Analyzing Employee Performance and Engagement Data
-======================================================================================================================
 
 Analyzing employee performance and engagement data is critical for measuring workplace culture and employee morale success. In this chapter, we will discuss the importance of analyzing employee performance and engagement data, common metrics to consider, and strategies for interpreting the data.
 

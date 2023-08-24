@@ -1,5 +1,3 @@
-Feedback and Employee Surveys
-==========================================================================
 
 Assessing your workplace culture is essential for identifying areas of strength and weakness and developing strategies for improvement. In this chapter, we will discuss the importance of assessing your workplace culture, common methods for collecting feedback from employees, and strategies for interpreting and acting on the data.
 

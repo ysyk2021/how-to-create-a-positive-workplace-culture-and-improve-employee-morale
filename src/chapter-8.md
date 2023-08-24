@@ -1,5 +1,3 @@
-Chapter 8: Measuring Workplace Culture and Employee Morale Success
-==================================================================
 
 Creating a positive workplace culture and improving employee morale requires ongoing effort and commitment from employers. To ensure the success of workplace culture and employee morale programs, it is essential to measure their effectiveness and make adjustments based on feedback. In this chapter, we will discuss methods for measuring workplace culture and employee morale success, analyzing employee performance and engagement data, and adjusting workplace culture and employee morale programs based on feedback.
 

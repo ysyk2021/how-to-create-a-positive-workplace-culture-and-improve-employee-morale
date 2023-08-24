@@ -1,5 +1,3 @@
-Methods for Measuring Workplace Culture and Employee Morale Success
-=======================================================================================================================================
 
 Measuring workplace culture and employee morale success is critical for ensuring that your organization is meeting its goals and priorities. In this chapter, we will discuss methods for measuring workplace culture and employee morale success.
 

@@ -1,5 +1,3 @@
-How a Positive Workplace Culture Improves Employee Morale
-===========================================================================================================
 
 Defining a positive workplace culture is essential for creating a work environment that promotes employee well-being and business success. A positive workplace culture can have a significant impact on employee morale, which is critical for maintaining a productive and engaged workforce. In this chapter, we will discuss how a positive workplace culture improves employee morale.
 

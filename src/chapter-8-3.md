@@ -1,5 +1,3 @@
-Adjusting Workplace Culture and Employee Morale Programs Based on Feedback
-==============================================================================================================================================
 
 Measuring workplace culture and employee morale success is critical for ensuring that programs and strategies are effective. In this chapter, we will discuss the importance of measuring workplace culture and employee morale success, methods for measuring success, and adjusting workplace culture and employee morale programs based on feedback.
 

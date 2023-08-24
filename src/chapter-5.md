@@ -1,5 +1,3 @@
-Chapter 5: Improving Communication in the Workplace
-===================================================
 
 Effective communication is essential for creating a positive workplace culture and improving employee morale. In this chapter, we will discuss the importance of effective communication in the workplace, strategies for improving workplace communication, and using active listening and feedback techniques.
 

@@ -1,5 +1,3 @@
-Building a Positive Workplace Culture - Creating a Shared Vision and Mission Statement
-=================================================================================================
 
 Creating a shared vision and mission statement is an important step in building a positive workplace culture. In this chapter, we will explore the strategies for creating a shared vision and mission statement that aligns with your company values and goals.
 

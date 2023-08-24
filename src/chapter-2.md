@@ -1,5 +1,3 @@
-Chapter 2: Defining a Positive Workplace Culture
-================================================
 
 Defining a positive workplace culture is critical for promoting employee well-being and driving organizational success. In this chapter, we will discuss the definition of a positive workplace culture, the elements that make up a positive workplace culture, and how a positive workplace culture improves employee morale.
 

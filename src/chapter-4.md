@@ -1,5 +1,3 @@
-Chapter 4: Building a Positive Workplace Culture
-================================================
 
 Building a positive workplace culture is critical for promoting employee well-being and business success. In this chapter, we will discuss strategies for building a positive workplace culture, creating a shared vision and mission statement, and encouraging teamwork and collaboration.
 

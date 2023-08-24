@@ -1,5 +1,3 @@
-Strategies for Promoting Employee Engagement and Recognition
-======================================================================================================================
 
 Promoting employee engagement and recognition is critical for creating a positive workplace culture and improving employee morale. In this chapter, we will discuss strategies for promoting employee engagement and recognition.
 

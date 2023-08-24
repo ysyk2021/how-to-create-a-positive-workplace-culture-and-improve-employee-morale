@@ -1,5 +1,3 @@
-The Benefits of Applying Positive Workplace Culture Skills to Leadership
-=============================================================================================================================================
 
 Leadership plays a critical role in building and maintaining a positive workplace culture. In this chapter, we will discuss the benefits of applying positive workplace culture skills to leadership, including:
 

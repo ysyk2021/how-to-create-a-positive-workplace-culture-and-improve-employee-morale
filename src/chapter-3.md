@@ -1,5 +1,3 @@
-Chapter 3: Assessing Your Workplace Culture
-===========================================
 
 Assessing your workplace culture is critical for identifying areas for improvement and promoting employee morale and engagement. In this chapter, we will discuss methods for assessing your workplace culture, identifying strengths and weaknesses of your workplace culture, and feedback and employee surveys.
 

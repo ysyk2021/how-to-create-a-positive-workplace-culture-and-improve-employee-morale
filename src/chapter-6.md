@@ -1,5 +1,3 @@
-Chapter 6: Addressing Workplace Stress and Burnout
-==================================================
 
 Workplace stress and burnout can have a significant impact on employee morale, productivity, and well-being. In this chapter, we will discuss the impact of workplace stress and burnout on employee morale, strategies for addressing workplace stress and burnout, and encouraging work-life balance and self-care.
 

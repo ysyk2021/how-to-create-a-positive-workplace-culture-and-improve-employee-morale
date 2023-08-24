@@ -1,5 +1,3 @@
-Strategies for Improving Workplace Communication
-=====================================================================================================
 
 Improving communication in the workplace is critical for promoting a positive workplace culture and improving employee morale. In this chapter, we will discuss strategies for improving workplace communication.
 

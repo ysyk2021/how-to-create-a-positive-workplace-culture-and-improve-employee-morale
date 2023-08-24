@@ -1,5 +1,3 @@
-Methods for Assessing Your Workplace Culture
-=========================================================================================
 
 Assessing your workplace culture is essential for creating a positive work environment that promotes employee well-being and business success. In this chapter, we will discuss methods for assessing your workplace culture.
 

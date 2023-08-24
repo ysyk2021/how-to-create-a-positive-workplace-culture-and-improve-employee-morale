@@ -1,5 +1,3 @@
-Chapter 9: Applying Positive Workplace Culture Skills to Leadership
-===================================================================
 
 Creating a positive workplace culture is essential for promoting employee well-being and business success. As a leader, it is your responsibility to apply positive workplace culture skills to your leadership style. In this chapter, we will discuss the benefits of applying positive workplace culture skills to leadership, strategies for using positive workplace culture skills to become a better leader, and leading with positivity and enthusiasm.
 

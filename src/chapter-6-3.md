@@ -1,5 +1,4 @@
-Chapter 8: Encouraging Work-Life Balance and Self-Care
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Encouraging work-life balance and self-care is essential for creating a positive workplace culture and improving employee morale. When employees feel supported in achieving a healthy balance between their work responsibilities and personal lives, they are more likely to be engaged, productive, and satisfied. In this chapter, we will explore strategies to encourage work-life balance and foster a culture of self-care within the workplace.
 

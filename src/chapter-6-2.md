@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Addressing Workplace Stress and Burnout
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Addressing workplace stress and burnout is crucial for creating a positive workplace culture and improving employee morale. High levels of stress and burnout can negatively impact productivity, employee engagement, and overall well-being. In this chapter, we will explore effective strategies that organizations can implement to address workplace stress and burnout.
 

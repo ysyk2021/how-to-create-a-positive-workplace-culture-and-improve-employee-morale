@@ -1,5 +1,4 @@
-Chapter 19: The Importance of Effective Communication in the Workplace
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is the cornerstone of a positive workplace culture and plays a vital role in improving employee morale. In this chapter, we will explore the significance of effective communication and provide strategies for fostering it within organizations.
 

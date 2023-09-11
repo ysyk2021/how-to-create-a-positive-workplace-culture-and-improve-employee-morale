@@ -1,5 +1,4 @@
-Chapter 21: Identifying Strengths and Weaknesses of Your Workplace Culture
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Assessing the strengths and weaknesses of your workplace culture is essential for creating a positive work environment and improving employee morale. In this chapter, we will explore strategies for identifying the strengths and weaknesses of your workplace culture and provide guidance on how to address areas that require improvement.
 

@@ -1,5 +1,4 @@
-Chapter 16: The Benefits of Promoting Employee Engagement and Recognition
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a positive workplace culture and improving employee morale requires fostering a sense of engagement and providing recognition for employees' contributions. In this chapter, we will explore the numerous benefits of promoting employee engagement and recognition and provide practical strategies for implementation.
 

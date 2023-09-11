@@ -1,5 +1,4 @@
-Chapter 7: Methods for Measuring Workplace Culture and Employee Morale Success
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To create a positive workplace culture and improve employee morale, it is crucial to measure the success of initiatives and interventions. By using effective methods to measure workplace culture and employee morale, organizations can gain insights into their current state, identify areas for improvement, and track progress over time. In this chapter, we will explore various methods for measuring workplace culture and employee morale success.
 

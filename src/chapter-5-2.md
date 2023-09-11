@@ -1,5 +1,4 @@
-Chapter 16: Strategies for Improving Workplace Communication
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective workplace communication is essential for fostering a positive and productive work environment. In this chapter, we will explore strategies and best practices for improving communication within the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 10: Encouraging Teamwork and Collaboration
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective teamwork and collaboration are essential for creating a positive workplace culture and improving employee morale. When employees work together towards common goals, share ideas, and support one another, they feel valued, engaged, and motivated. In this chapter, we will explore strategies to encourage teamwork and foster a collaborative environment within the workplace.
 

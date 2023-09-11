@@ -1,5 +1,4 @@
-Chapter 14: The Elements That Make Up a Positive Workplace Culture
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A positive workplace culture is built upon various elements that contribute to a harmonious, productive, and engaging environment. These elements shape the values, behaviors, and overall atmosphere within an organization. In this chapter, we will explore the key elements that make up a positive workplace culture.
 

@@ -1,5 +1,4 @@
-Chapter 11: Creating a Shared Vision and Mission Statement
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A shared vision and mission statement play a vital role in creating a positive workplace culture and improving employee morale. When employees have a clear understanding of the organization's purpose, values, and goals, they feel connected to something meaningful and are more motivated to contribute their best efforts. In this chapter, we will explore the importance of creating a shared vision and mission statement and provide guidance on how to develop one.
 

@@ -1,5 +1,4 @@
-Chapter 12: Definition of a Positive Workplace Culture
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A positive workplace culture is the foundation for an engaged, motivated, and productive workforce. It encompasses the shared values, beliefs, behaviors, and attitudes that define the work environment and shape employee experiences. In this chapter, we will explore the definition of a positive workplace culture and its key elements.
 

@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Using Positive Workplace Culture Skills to Become a Better Leader
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Becoming a better leader involves developing and applying positive workplace culture skills. When leaders prioritize these skills, they create an environment that fosters employee morale, engagement, and overall success. In this chapter, we will explore effective strategies for using positive workplace culture skills to become a better leader.
 

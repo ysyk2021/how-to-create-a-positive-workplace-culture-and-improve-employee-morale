@@ -1,5 +1,4 @@
-Chapter 17: Strategies for Promoting Employee Engagement and Recognition
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Promoting employee engagement and recognition is vital for creating a positive workplace culture and improving employee morale. In this chapter, we will explore practical strategies and best practices to foster employee engagement and recognition within organizations.
 

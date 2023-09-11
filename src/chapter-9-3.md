@@ -1,5 +1,4 @@
-Chapter 6: Leading with Positivity and Enthusiasm
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to create a positive workplace culture and improve employee morale, leaders must embody positivity and enthusiasm. When leaders lead with a positive and enthusiastic mindset, it has a contagious effect on the entire organization. In this chapter, we will explore strategies for leading with positivity and enthusiasm.
 

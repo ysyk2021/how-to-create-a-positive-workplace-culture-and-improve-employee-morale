@@ -1,5 +1,4 @@
-Chapter 4: Methods for Assessing Your Workplace Culture
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Assessing your workplace culture is an important step in creating a positive work environment and improving employee morale. Understanding the current state of your culture allows you to identify areas for improvement and develop targeted strategies. In this chapter, we will explore effective methods for assessing your workplace culture.
 

@@ -1,5 +1,4 @@
-Chapter 13: How a Positive Workplace Culture Improves Employee Morale
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A positive workplace culture has a profound impact on employee morale. It creates an environment where employees feel valued, engaged, and motivated. In this chapter, we will explore the ways in which a positive workplace culture improves employee morale.
 

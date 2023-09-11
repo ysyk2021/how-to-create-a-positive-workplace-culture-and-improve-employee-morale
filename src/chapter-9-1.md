@@ -1,5 +1,4 @@
-Chapter 8: The Benefits of Applying Positive Workplace Culture Skills to Leadership
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Positive workplace culture is not only beneficial for employees but also plays a crucial role in effective leadership. When leaders prioritize and apply positive workplace culture skills, it creates a ripple effect throughout the organization. In this chapter, we will explore the numerous benefits of applying positive workplace culture skills to leadership.
 

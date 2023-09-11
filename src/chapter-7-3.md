@@ -1,5 +1,4 @@
-Chapter 18: Creating an Environment of Appreciation and Celebration
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating an environment of appreciation and celebration is essential for fostering a positive workplace culture and improving employee morale. In this chapter, we will explore strategies and best practices to create a culture of appreciation and celebration within organizations.
 

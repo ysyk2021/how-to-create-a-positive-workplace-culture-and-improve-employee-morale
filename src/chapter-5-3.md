@@ -1,5 +1,4 @@
-Chapter 15: Using Active Listening and Feedback Techniques
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Active listening and feedback techniques are essential tools for creating a positive workplace culture and improving employee morale. They promote effective communication, understanding, and collaboration among team members. In this chapter, we will explore the importance of active listening and feedback and provide practical techniques for their implementation.
 
